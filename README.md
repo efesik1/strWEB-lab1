@@ -1,1 +1,1 @@
-# strWEB-lab1
+Aliaksei, 224403
